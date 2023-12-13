@@ -4,4 +4,4 @@ Password: s
 
 This is a free open source created by me
 
-My discord: shkwx
+My discord: shakymld
